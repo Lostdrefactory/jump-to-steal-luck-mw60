@@ -1,4 +1,4 @@
-#  
+#  Experience jump to steal lucky blocks like never before with jump to steal lucky blocks automatic Scripts, the #1 Script. Includes custom skins and
 
 
 
